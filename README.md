@@ -1,1 +1,0 @@
-# FirebosMax.github.io
